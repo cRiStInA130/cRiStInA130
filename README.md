@@ -1,0 +1,14 @@
+-👋Hi
+- This is a school report
+- My name is kelly💙
+- I have 15 years
+- I like in to read book
+- Short to attend films
+- My book preferred and the ''the psychopath and the suicide
+- I'm athletic❤️
+- @christinee_gc 💖 my Instagram
+- I love dogs🐶
+- My sign is ♍️
+- My music preferred is ''Is the Stars''
+- Love music💗
+- Love my dogs
